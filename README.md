@@ -1,1 +1,1 @@
-# Jericho-1
+# SMART SHOP
